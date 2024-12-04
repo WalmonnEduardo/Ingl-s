@@ -1,2 +1,2 @@
-# Ingl-s
+# Ingles
 Atividades de inglês
